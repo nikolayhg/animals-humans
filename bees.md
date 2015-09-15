@@ -64,4 +64,4 @@ in Ausland: nach einem Jahr getötet und durch neue produktivere Königinnen ers
 * http://www.imkerei.vonorlow.de/index.php?option=com_content&view=article&id=70:ist-honig-vegan&catid=30:honig&Itemid=79
 * http://www.veganblog.de/2014/08/warum-ist-honig-nicht-vegan/
 * http://kreuzberger-bienen.de/2014/08/12/honig-veganismus-und-peta/comment-page-1/
-
+* https://www.youtube.com/watch?v=vx5mjqgrGtY
