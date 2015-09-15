@@ -33,7 +33,6 @@ in Ausland: nach einem Jahr getötet und durch neue produktivere Königinnen ers
 
 * als Nahrungsmittel
 * als Schutz vor einem möglichen Befall durch verschiedene Milbenarten und anderen Krankheiten, die unter anderem für das Bienensterben verantwortlich sind.
-
 * künstliche Ersatznahrung (billiges Zuckerwasser) kann die Tiere anfälliger für Krankheiten machen.
 
 
