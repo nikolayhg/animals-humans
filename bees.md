@@ -57,6 +57,11 @@ in Ausland: nach einem Jahr getötet und durch neue produktivere Königinnen ers
 * Achten Sie darüber hinaus auch beim Blumenkauf auf Bienenfreundlichkeit.
 
 
-Quellen:
+## Quellen
+
 * http://www.peta.de/honig
-* 
+* http://www.bioimkerhonig.de/bienenhonig/ist-honig-vegan.php
+* http://www.imkerei.vonorlow.de/index.php?option=com_content&view=article&id=70:ist-honig-vegan&catid=30:honig&Itemid=79
+* http://www.veganblog.de/2014/08/warum-ist-honig-nicht-vegan/
+* http://kreuzberger-bienen.de/2014/08/12/honig-veganismus-und-peta/comment-page-1/
+
